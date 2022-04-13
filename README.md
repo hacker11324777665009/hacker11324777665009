@@ -5,6 +5,5 @@
 - 📫 How to reach me ... don't i am young
 
 <!---
-hacker11324777665009/hacker11324777665009 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+hacker11324777665009/hacker11324777665009 is a ✨ special ✨ repository because he is a hacker and he has i big brain And i know jenna. :)
 --->
